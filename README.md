@@ -1,1 +1,1 @@
-# latihan_studikasus
+![](Screenshot%20(6).png)
